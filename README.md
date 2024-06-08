@@ -8,7 +8,7 @@ Time open:
 Everyday from 9am to 6pm (Except sunday)
 
 Website Link:
-(https://manga-anime-kijjl6g.gamma.site/)
+(https://manga-haven-namtz8o.gamma.site/))
 
 Location:
 Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
