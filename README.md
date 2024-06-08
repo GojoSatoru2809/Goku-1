@@ -30,6 +30,12 @@ Mandarin (UnAvailable)
 English (Available)
 Bahasa Melayu (Available)
 
+Recomended manga of each genre :
+Shonen : Jujutsu Kaisen
+Isekai : Dorei Tensei
+Mystery : Bungo Stray Dogs
+Horror : Parasyte:The maxim
+
 Pricing:
 Released for more than 5 years ago : RM50.00
 Released around 3 years ago : RM70.00
